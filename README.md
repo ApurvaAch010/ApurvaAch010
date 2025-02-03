@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 HI! I AM APURVA ACHARYA:
 I'm currently working on my self<br>BUILDING PROJECTS AND EXPLORING
 
 
